@@ -1,0 +1,1 @@
+O GitHub só permite uploads de 35mbs, o vídeo deu 500mb então não consigo colocar aqui. Por favor leia o README na pasta Projeto/ e lá terá o link do vídeo disponível no Google Drive
